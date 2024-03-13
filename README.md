@@ -1,0 +1,14 @@
+- Heya! Im Gavin, 15 years, in highschool, one of the biggest nerds (in a good way) you will ever meet!
+- 🤸 Hobbies : I enjoy art and coding a lot! Video games are a lot of fun too *cough* Roblox *cough* Call Of Duty *cough*
+- 📚 What I'm learning : I'm currently  working on my skills with HTML, Javascript, and CSS.
+- 🤜🤛 Collbas? : I will collaborate on literally anything
+- 📱 Place to contact me : Scratch is probably the best place
+- 🫥 Pronouns? : yk what lets not get into that.
+- ⚡ Fun fact : I can type at 69 wpm with 1 hand.
+- 🤠 im from TEXAS YA'LL
+- 
+-
+-
+-
+-
+-
